@@ -10,3 +10,7 @@ https://www.shredderchess.net/?game=6330339
 https://www.shredderchess.net/?game=6331166
 https://www.shredderchess.net/?game=6331214
 https://www.shredderchess.net/?game=6331214
+
+**17/06/2016**
+--------------
+https://www.shredderchess.net/?game=6336050
