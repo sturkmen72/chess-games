@@ -14,3 +14,7 @@ https://www.shredderchess.net/?game=6331214
 **17/06/2016**
 --------------
 https://www.shredderchess.net/?game=6336050
+
+**18/06/2016**
+--------------
+https://www.shredderchess.net/?game=6345248
