@@ -18,3 +18,6 @@ https://www.shredderchess.net/?game=6336050
 **18/06/2016**
 --------------
 https://www.shredderchess.net/?game=6345248
+https://www.shredderchess.net/?game=6345603 lost with blunder
+https://www.shredderchess.net/?game=6345686 opponent user Capablanca3
+https://www.shredderchess.net/?game=6345680 ha ha ha you should see it!
