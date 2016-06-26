@@ -42,3 +42,5 @@ https://www.shredderchess.net/?game=6378611
 --------------
 
 https://www.shredderchess.net/?game=6418374 interesting game 
+
+https://www.shredderchess.net/?game=6418476 interesting game 
