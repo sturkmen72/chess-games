@@ -38,4 +38,7 @@ https://www.shredderchess.net/?game=6345680 ha ha ha you should see it!
 --------------
 https://www.shredderchess.net/?game=6378611
 
+**26/06/2016**
+--------------
 
+https://www.shredderchess.net/?game=6418374 interesting game 
