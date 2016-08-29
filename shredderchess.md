@@ -47,8 +47,12 @@ https://www.shredderchess.net/?game=6418476 interesting game
 
 **17/07/2016**
 --------------
+
 https://www.chess.com/livechess/game?id=1655782720
 
 **29/08/2016**
 --------------
+
 https://www.chess.com/livechess/game?id=1708078458
+
+https://www.chess.com/livechess/game?id=1708185229
